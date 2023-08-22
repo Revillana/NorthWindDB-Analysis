@@ -1,3 +1,4 @@
+
 **Estrategia de Marketing: Impulsando el Éxito a Través de la Diversidad y Enfoque**
 
 Basándonos en los análisis y resultados obtenidos de la base de datos pública, hemos diseñado una estrategia de marketing enfocada en potenciar los aspectos más rentables y fortalecer el rendimiento global. 
